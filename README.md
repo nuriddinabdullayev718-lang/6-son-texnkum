@@ -1,2 +1,2 @@
-# 6-son-texnkum
-samarqand shahar 6-son texnkumi
+# 6-son-texnikumi
+samarqand shahar 6-son texnikumi
